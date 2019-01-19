@@ -1,2 +1,2 @@
-cos tam w srodku
+jenak nie w srodku a na zwewatrz
 i dodatkowa zmiana
