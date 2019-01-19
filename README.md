@@ -1,2 +1,2 @@
-jenak nie w srodku a na zwewatrz
+pomylka nie w srodku a na zwewatrz
 i dodatkowa zmiana
